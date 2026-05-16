@@ -1,0 +1,2 @@
+bildiğimiz çevre botu
+ıuntıy3wnmoıy3wnm85yrnvcm8w37yc5t8rw74y5tmno8c74eyn5t8rdıgfyujehr8s7ıuymtjfh984eo5uy7t498jf4357eyjtfh8745erg64985feıuryt
